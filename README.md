@@ -1,2 +1,0 @@
-# sodiumethylxanthate.github.io
-hi :)
